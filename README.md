@@ -1,3 +1,0 @@
--_-
-
-sosi nya ><>< UwU
